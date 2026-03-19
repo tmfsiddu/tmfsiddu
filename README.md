@@ -1,4 +1,4 @@
-# Hi, I'm Sai Siddhu 👋
+# Hi, I'm Sai Siddardha 👋
 
 🎓 B.Tech Computer Science Student at NIT Puducherry
 📊 CGPA: 9.40 / 10
